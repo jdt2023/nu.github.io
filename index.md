@@ -406,9 +406,9 @@
 2 信神首先得解决败坏性情的问题、解决人犯罪的问题，还得顺服神、认识神，这样才能真正脱去败坏性情，达到脱离撒但的权势完全归向神。信神、跟随神是为从神得真理生命，最后成为合神心意的人，能顺服神、敬拜神，这才是信神的真实意义。 <br/>  
 ——《话・卷三 末世基督座谈纪要・具备真实的顺服才有真实的信心》<br/>   
    
-           <iframe width="560" height="315" src="https://www.youtube.com/embed/tOzHudCa6Kc?si=N6SUMpe6aS0559tL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+         <br/>  <iframe width="560" height="315" src="https://www.youtube.com/embed/tOzHudCa6Kc?si=N6SUMpe6aS0559tL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-
+<br/>
 
    
 # 1 人类为什么要信神呢？   <br/>
