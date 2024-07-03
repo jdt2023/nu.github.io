@@ -1,5 +1,5 @@
 <!DOCTYPE html>
-<!-- saved from url=(0039)https://jdt2023.github.io/nu.github.io/ -->
+
 <html lang="en-US"><head><meta http-equiv="Content-Type" content="text/html; charset=UTF-8">
     
     <meta http-equiv="X-UA-Compatible" content="IE=edge">
@@ -376,10 +376,7 @@
   <body>
     <div class="container-lg px-3 my-5 markdown-body">
       
-      <h1><a href="https://jdt2023.github.io/nu.github.io/">nu.github.io</a></h1>
       
-
-      <h1 id="index">index</h1>
 <h2 id="我的彩色博客
 
 首页-home
