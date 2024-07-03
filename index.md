@@ -399,7 +399,7 @@
 ## 关于我 <br/>
 你好！我是一个热爱写作的博主，喜欢分享有关信仰方面的话题。敬请期待更多内容！   
 ## 博客文章   <br/>
-### 第一篇文章   
+### 下面是全能神教会的神话语诗歌
    
 ## 1245 人为什么要信神  <br/> 
 1 什么是信神？这是一个最实际的问题，也是信神必须明白的最基本的真理。在你心里，信神的目的到底是什么？你为什么要信神？人开始信神都是想得恩典，想得福、得好处，想满足精神上或者肉体上的各种要求、各种愿望，从追求这些开始信神，也受了许多苦，到现在人明白了信神的意义不止于此，信神的意义太深了、太实际了。<br/>   
@@ -409,7 +409,7 @@
          <br/>  <iframe width="560" height="315" src="https://www.youtube.com/embed/tOzHudCa6Kc?si=N6SUMpe6aS0559tL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 <br/>
-
+以下都是引用全能神教会网站的内容
    
 # 1 人类为什么要信神呢？   <br/>
 参考圣经：   <br/>
